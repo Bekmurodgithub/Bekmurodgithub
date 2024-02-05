@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-<h3  align="center" >men    o'zbekistonlik dasturiy  ta'minot muhandisiman   . < / h3>
+<h3  align="center" >men    o'zbekistonlik dasturiy  ta'minot muhandisiman   . 
